@@ -1,2 +1,0 @@
-# christinej
-My personal website
